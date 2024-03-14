@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Nuptayy
+- 👀 I’m interested in gaming, coding, playing music
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me on discord (@nuptay)
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: CACTUS
