@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Nuptayy
 - 👀 I’m interested in gaming, coding, playing music
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me on discord (@nuptay)
+- 🌱 I’m currently learning C#
+- 💞️ I’m not looking to collaborate
+- 📫 You can reach me on discord (@nuptay)
 - ⚡ Fun fact: CACTUS
